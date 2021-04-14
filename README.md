@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @squirrelznutz
+- 👀 I’m interested in 🐍
+- 🌱 I’m currently learning 🕸
+- 📫 ⛔️
